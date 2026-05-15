@@ -1,4 +1,4 @@
-# 
+# vip geckoterminal sniper bot | arbitrage-opportunities + low-cap-gem-detection is the best geckoterminal sniper bot, featuring arbitrage-opportunities and low-cap-gem-detection.
 
 
 
